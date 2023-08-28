@@ -15,5 +15,6 @@ J'ai choisi ce programme parce que je le trouvais **intéressant** et j'aimais t
 * Illustratrice
 * Animatrice de story-board
 * etc...
+  
 En gros, j'ai pris ce programme car cela me pourrais aider à poursuivre mon métier. 😁
 
