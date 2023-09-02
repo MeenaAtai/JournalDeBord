@@ -16,7 +16,7 @@ L'oeuvre *Perspective Playground* constitue de l'utilisation de la photographie 
 
 ### Lien 3 
 ### [L'opérateur](https://placedesarts.com/fr/capsule/l%E2%80%99op%C3%A9rateur)
-Cette oeuvre nommé **l'opérateur m'a beaucoup intrigué. En effet, cette oeuvre est constitué de l'animation 2D, de l'audio et de design à l'ordinateur. Je trouve que cela pourrait m'amené à découvrir d'autres formes de multimédia tel que l'animation. L'utilisation de cet média nous permet de plonger dans une autre dimension.
+Cette oeuvre nommé *l'opérateur* m'a beaucoup intrigué. En effet, cette oeuvre est constitué de l'animation 2D, de l'audio et de design à l'ordinateur. Je trouve que cela pourrait m'amené à découvrir d'autres formes de multimédia tel que l'animation. L'utilisation de cet média nous permet de plonger dans une autre dimension.
 
 ### Lien 4 
 ### [Traversées](https://lab-yrinthe.ca/oeuvres/traversees/)
