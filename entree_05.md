@@ -8,15 +8,10 @@ Dans la préparation à l'examen, je suis très organisée dans la prise de note
 Cependant, je suis parfois distraite et pas concentrée dans mes études. Donc, je pense que la solution est d'essayer d'enlever tous les sortes de choses qui peut me distraire et avoir un lieu pour étudier qui est silencieux. De plus, je procastine souvent. Donc, la solution est d'avoir un plan d'organisation pour les temps à étudier.
 
 ### Gestion du temps
-Comment avez-vous géré votre temps lors de l'examen?
-
 Au début, je fais un survol des questions pour avoir une idée de quoi l'examen va parler. Puis, j'essaie de répondre les questions que je juge facile. Après, j'essaie de répondre les questions restantes que je pense est la réponse logique.
 
 ### Outils et ressources
-Quels outils et ressources avez-vous utilisés pour la préparation à l'examen?
-
 Les outils et ressources que j'ai utilisé pour la préparation à l'examen sont les notes de cours et l'internet.
 
 ### Difficultés
-Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
-
+Les difficultés que j'ai rencontrées pendant l'examen sont que, parfois, j'oublie les réponses alors que je le sais car je me mélange ou suis confus. Dès fois, il y a des erreurs d'inattention parce que j'ai lu la question trop vite et pas capté la question au complet.
