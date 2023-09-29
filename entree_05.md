@@ -14,4 +14,4 @@ Au début, je fais un survol des questions pour avoir une idée de quoi l'examen
 Les outils et ressources que j'ai utilisé pour la préparation à l'examen sont les notes de cours et l'internet.
 
 ### Difficultés
-Les difficultés que j'ai rencontrées pendant l'examen sont que, parfois, j'oublie les réponses alors que je le sais car je me mélange ou suis confuse. Dès fois, il y a des erreurs d'inattention parce que j'ai lu la question trop vite et pas capté la question au complet.
+Les difficultés que j'ai rencontrées pendant l'examen sont que, parfois, j'oublie les réponses alors que je le sais car je me mélange ou suis confuse. Dès fois, il y a des erreurs d'inattention parce que j'ai lu la question trop vite et ne pas capté la question au complet.
