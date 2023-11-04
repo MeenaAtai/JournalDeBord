@@ -15,8 +15,11 @@ L'oeuvre qui est l'escape game à l'Escaparium. J'ai pu assister à un de leurs 
 ### Opinion
 Donnez votre opinion sur l'oeuvre que nous avons visitée. Vous a-t-elle plu? Ou pas du tout? Pourquoi? Est-ce que certains aspects vous ont plus touchés que d'autres? 
 
-J'ai aimé le jeu d'évasion. Cela m'a beaucoup plu. Parce que je trouvais que chercher les énigmes nous stimulait et nous donnait un défi intellectuel. Cela me donnait une raison à continuer et de chercher les indices pour afin de débloquer les problèmes. Chaque problème était unique, complexe et différent de l'un des autres. Cela donne un facteur que le jeu est plus amusant, agréable et pas répétitif. 
+J'ai aimé le jeu d'évasion. Cela m'a beaucoup plu. Parce que je trouvais que chercher les énigmes nous stimulait et nous donnait un défi intellectuel. Cela me donnait une raison à continuer et de chercher les indices pour afin de débloquer les problèmes. Je trouve que l'aspect de résoudre chaque problème était unique, complexe et différent de l'un des autres. Cela donne un facteur que le jeu est plus amusant, agréable et pas répétitif. Ainsi, l'ambiance était vraiment agréable et nous mettez dans une atmosphère sombre et dans l'action. Les décors avaient l'air très convaincants. Puis, le fait qu'on devait se collaborer était bien.
 
 ### Analyse critique
 Qu'est-ce qui pourrait être modifié dans cette oeuvre? 
+
+Le truc qui pourrait se modifié dans l'oeuvre est le fait de mettre plus d'énigmes, parce que je trouvais qu'on a résolu le jeu un peu trop rapidement et que les énigmes pouvaient être un peu plus difficile pour afin avoir un jeu de temps équilibré. Aussi, je trouve qu'il pouvait rendre plus l'ambiance plus épeurant et plus immersive pour avoir l'air qu'on est vraiment en train de faire une mission, plutôt qu'un jeu. Les innovations pouvaient être meilleurs, par exemple le bateau qui pouvait agiter un peu plus pour mieux imiter qu'on est dans la mer.
+
 
