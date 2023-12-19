@@ -13,6 +13,8 @@ Comment avez-vous géré votre temps lors de la présentation?
 ### Outils et ressources
 Quels outils et ressources avez-vous utilisés pour la préparation de votre présentation?
 
+J'ai utilisé Powerpoint pour présenter mon projet. Ainsi, 
+
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant la présentation?
 
